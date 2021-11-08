@@ -1,2 +1,2 @@
-Papakojo Kuranchie and I apologizer for the lateness. More will come
+P.K. and I apologize for the lateness. More will come
 
